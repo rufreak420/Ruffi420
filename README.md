@@ -1,16 +1,17 @@
-### Hi there 👋
+# Halo Yang Berkunjung :) 
 
-<!--
-**Ruffi420/Ruffi420** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Perkenalkan nama saya [**Zukhruf**](https://www.linkedin.com/in/zukhruf/).<br>
 
-Here are some ideas to get you started:
+Saya **Mahasiswa Biasa** di [INSTITUT TEKNOLOGI SUMATERA](http://el.itera.ac.id/).<br>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Saya iseng aja buat ini karena belajar di [dicoding](https://www.dicoding.com/).<br>
+
+ga tau kedepannya bakalan gimana,
+
+semoga bisa jadi DEVELOPER DI [GOOGLE](https://www.google.com/) hehe.<br>
+
+atau jadi Iot Engineer di [Intel](https://www.intel.co.id/content/www/id/id/internet-of-things/overview.html).<br>
+
+Saya suka belajar hal-hal baru dan antusias terhadap hal yang menarik, bukan di dorong :)
+
+hehe ga lucu ya, ya udah lah namanya juga belajar.<br>
