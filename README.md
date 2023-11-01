@@ -12,6 +12,6 @@ semoga bisa jadi DEVELOPER DI [GOOGLE](https://www.google.com/) hehe.<br>
 
 atau jadi Iot Engineer di [Intel](https://www.intel.co.id/content/www/id/id/internet-of-things/overview.html).<br>
 
-Saya suka belajar hal-hal baru dan antusias terhadap hal yang menarik, bukan di dorong :)
+Saya suka belajar hal-hal baru dan antusias terhadap hal yang menarik, bukan mendorong :)
 
 hehe ga lucu ya, ya udah lah namanya juga belajar.<br>
