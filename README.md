@@ -8,7 +8,7 @@ I just made this for fun because I studied at [dicoding](https://www.dicoding.co
 
 I don't know what will happen in the future,
 
-Hopefully I can become a DEVELOPER AT [GOOGLE](https://www.google.com/) hehe.<br>
+Hopefully I can become a DEVELOPER at [GOOGLE](https://www.google.com/) hehe.<br>
 
 or become an IoT Engineer at [Intel](https://www.intel.co.id/content/www/id/id/internet-of-things/overview.html).<br>
 
