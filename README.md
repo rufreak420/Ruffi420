@@ -2,7 +2,7 @@
 
 Let me introduce myself, my name is [**ZUKHRUF**](https://www.linkedin.com/in/zukhruf/).<br>
 
-I am an **Ordinary Student** at the [**SUMATERA INSTITUTE OF TECHNOLOGY**](http://el.itera.ac.id/).<br>
+I am an **Ordinary Student** at the [**SUMATERA INSTITUTE OF TECHNOLOGY**](https://www.itera.ac.id/).<br>
 
 I just made this for fun because I studied at [dicoding](https://www.dicoding.com/).<br>
 
