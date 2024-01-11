@@ -14,4 +14,4 @@ or become an IoT Engineer at [NVIDIA](https://developer.nvidia.com/).<br>
 
 I like learning new things and am enthusiastic about things that are interesting, not pushy :)
 
-hehe it's not funny, that's right! the name is [learning](https://id.wikipedia.org/wiki/Belajar).<br>
+hehe it's not funny, that's right! [learning](https://id.wikipedia.org/wiki/Belajar).<br>
