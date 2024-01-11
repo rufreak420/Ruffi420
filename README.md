@@ -10,7 +10,7 @@ I don't know what will happen in the future,
 
 Hopefully I can become a DEVELOPER at [GOOGLE](https://www.google.com/) hehe.<br>
 
-or become an IoT Engineer at [Intel](https://www.intel.co.id/content/www/id/id/internet-of-things/overview.html).<br>
+or become an IoT Engineer at [NVIDIA](https://developer.nvidia.com/isaac).<br>
 
 I like learning new things and am enthusiastic about things that are interesting, not pushy :)
 
